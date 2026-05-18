@@ -1,0 +1,2 @@
+# healthcare-medical-financial-planning-and-budget-tracker-notion-template
+Medical professionals lose thousands annually to missed tax deductions and scattered financial records. The Healthcare &amp; Medical Financial Planning and Budget Tracker Notion Template consolidates your entire financial life—from clinical income to student loan payoff—into one intelligent system designed specifically for doctors, nurses, and healthca
